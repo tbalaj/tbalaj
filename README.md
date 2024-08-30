@@ -8,4 +8,4 @@
 <br>-⚡ Fun fact: When I'm not coding, you can find me hiking the nearest trail—I've logged over 100 miles of hiking in the past year alone! I love photography as well and 
  persue it as a freelance photographer in my spare time.
 
-<br>✨ Thank you for taking the time reading my profile.✨ <br>
+<br>✨ Thank you for taking the time to read my profile.✨ <br>
